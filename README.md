@@ -1,0 +1,1 @@
+# Multilingual-OCR-Application-Hindi-and-English-
